@@ -7,4 +7,6 @@
   <img src="https://files.catbox.moe/688tz0.jpeg">
 </div>
 
-
+<br/><div align="center"><br/>
+_entwined, we dream unknown_
+</div>
