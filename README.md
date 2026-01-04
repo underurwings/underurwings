@@ -5,4 +5,3 @@
   <img src="https://files.catbox.moe/dqd09y.png">
 </div>
 
-***c+h is enc, i dont rp.***
